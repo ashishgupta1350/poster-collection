@@ -1,2 +1,7 @@
 # The-posters-Collection-Ashish
-This represents mmy work
+
+1st year posters are divided into 2 groups.
+1) Edited posters 
+2) New ones that I created. 
+
+
